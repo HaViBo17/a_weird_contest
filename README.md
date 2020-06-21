@@ -1,0 +1,1 @@
+# a_weird_contest
